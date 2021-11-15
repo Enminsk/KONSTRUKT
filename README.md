@@ -1,1 +1,1 @@
-# KONSTRUKT
+# Konstrukt
